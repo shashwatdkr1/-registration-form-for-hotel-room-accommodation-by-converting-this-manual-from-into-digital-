@@ -1,0 +1,1 @@
+# -registration-form-for-hotel-room-accommodation-by-converting-this-manual-from-into-digital-
